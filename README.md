@@ -12,4 +12,6 @@
 11.5th qp exp2
 12.6th qp.
 13.6th qp exp 1
-14.6th qp exp2
+14.6th qp exp2<br>
+<Hr>
+1.21/8-20qsn in 3rd, studied 2qsn frm 2nd qp<br>
