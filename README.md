@@ -15,3 +15,9 @@
 14.6th qp exp2<br>
 <Hr>
 1.21/8-20qsn in 3rd, studied 2qsn frm 2nd qp<br>
+
+
+TILL SEP 28 PLANS<BR>
+SEP 8 - 10Q STUDIED<BR>
+SEP 9 - REM Q FINISH <br>
+SEP 10 - ATTEND FULL Q PAPER4 FULL FLEDGED <BR>
